@@ -8,4 +8,4 @@
 - 💬 I have a unique idea and I am working to create a decentralized Web3 app
 - 📫 How to reach me: isikaraali@gmail.com
 - 😄 Feel free to ask, support or share thoughts
-- ⚡ Fun fact: I have long way to ride.
+- ⚡ Fun fact: we have long way to ride.
