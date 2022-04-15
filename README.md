@@ -6,6 +6,6 @@
 - 🌱 I’m currently learning HTML & CSS & JS
 - 🤔 I have deep knowledge about Blockchain Technology 
 - 💬 I have a unique idea and I am working to create a decentralized Web3 app
-- 📫 How to reach me: isikaraali@gmail.com
+- 📫 How to reach me: kriptokoloni@gmail.com
 - 😄 Feel free to ask, support or share thoughts
 - ⚡ Fun fact: we have long way to ride.
